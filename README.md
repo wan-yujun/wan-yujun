@@ -13,7 +13,7 @@
 
 - 🤝 我正在寻求 **更好的学习机会与平台**
 
-- 👨‍💻 我所有的项目都在 [https://github.com/wuxin-123](https://github.com/wuxin-123)
+- 👨‍💻 我所有的项目都在 [https://github.com/wan-yujun](https://github.com/wuxin-123)
 
 - 📝 我经常写关于计算机或科技类的文章 [https://blog.csdn.net/m0_46328473](https://blog.csdn.net/m0_46328473)
 
@@ -21,7 +21,7 @@
 
 - 📫 如何添加我？ **2241965692@qq.com**
 
-- 📄 座右铭 [保持五心、奔赴真理](保持五心、奔赴真理)
+- 📄 座右铭 [保持热爱，奔赴星海](保持五心、奔赴真理)
 
 - ⚡ 有趣的事实 **The science is amazing!**
 
